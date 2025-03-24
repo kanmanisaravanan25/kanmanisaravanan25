@@ -1,9 +1,9 @@
-- 👋 Hi, I’m @kanmanisaravanan25
+- 👋 Hi, I’m kanmani
 - 👀 I’m interested in Learning new 
 - 🌱 I’m currently learning 3d printing and technology
 - 💞️ I’m looking to collaborate on editing over all
-- 📫 How to reach me mailid kanmanisaravanan25@gmail.com
-- 
+- 📫 How to reach me mail -id kanmanisaravanan25@gmail.com
+  
   
 
 <!---
